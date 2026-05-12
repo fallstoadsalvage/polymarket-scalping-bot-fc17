@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Polymarket algorithm with updated Polymarket Algorithm | arbitrage-detection + high-frequency-trading. Featuring arbitrage-detection and high-frequency-trading,
 
 
 
